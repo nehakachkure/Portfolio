@@ -4,4 +4,4 @@
 
 [portfolio_.pdf](https://github.com/user-attachments/files/19651355/portfolio_.pdf)
 
-![Image](https://github.com/user-attachments/assets/74372e6e-41a0-4b4a-a129-ae43c014df32)
+![Image](https://github.com/user-attachments/assets/d11d315b-0329-4def-85a6-904c87673273)
